@@ -5,7 +5,7 @@
 [![Instagram](https://img.shields.io/badge/-Instagram-c13584?style=flat&labelColor=c13584&logo=instagram&logoColor=white)](https://www.instagram.com/_leandra.oliveiras)
 [![Gmail](https://img.shields.io/badge/-Gmail-c14438?style=flat&logo=Gmail&logoColor=white)](mailto:leandra.silva@ccc.ufcg.edu.br)
 
-Hola mi Nombre es **Catalina Toled**, tengo 26 años y estudio **Tecnico en Programació** en el instituto Aiep en Chillan .
+Hola mi Nombre es **Catalina Toledo**, tengo 26 años y estudio **Tecnico en Programació** en el instituto Aiep en Chillan .
 Actual mente soy Estudiante del sector. En mis tiempos libres me gusta realiza deporte.  Me gusta mucho escuchar musica :heartbeat: :notes:, ver peliculas o series, salir a caminar en mis tiempos libres sola o con amigos . <img height ="20" src= "https://camo.githubusercontent.com/6ba7b982e69849c28d40e15131d5557cd65455a6/68747470733a2f2f6d656469612e67697068792e636f6d2f6d656469612f4c6e516a7057614f4e386e68723231764e572f67697068792e676966" />
 
 <img align= "right" width= "240" src= "https://pa1.narvii.com/6580/8098c6e9207376889eeb0532d9f5a0723c4d73f5_hq.gif"/>
